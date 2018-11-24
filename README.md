@@ -1,2 +1,2 @@
 # goal
-hi im sahiti
+to bling out
